@@ -1,4 +1,4 @@
-# Filmes Adicionados
+# Filmes Adicionados:
 
 - A Boa Metade (2024)
 - A Sereia Amor Para Sempre (2024) (Leg)
