@@ -1,40 +1,46 @@
-A Boa Metade
-A Sereia Amor Para Sempre (Leg)
-A Solta Amor em Fuga
-A Vítima Invisível: O Caso Eliza Samudio
-Apartamento 7A (Leg)
-As Três Filhas
-Bangkok Breaking: Céu e Inferno (Leg)
-Bangkok no Limite Entre o Inferno e o Paraíso
-Best Cop Ever (Leg)
-Cães de Guerra
-Calor Mortífero (Leg)
-Cuckoo (Leg)
-Dario Argento Pânico (Leg)
-Demi Lovato Apresenta Estrela Mirim (Leg)
-Diabólica (Leg)
-E Assim Que Acaba
-Elen DeGeneres For Your Approval (Leg)
-Fique Acordado
-Fly
-Greice
-Guerreiros do Basquete
-Hijack 1971 (Leg)
-Housekeeping for Beginners
-Lobos (Leg)
-Lua de Sangue
-Meu Amigo Robô
-Morrison (Leg)
-Nascida para Cantar
-Negociador de Crise (Leg)
-O Ar Que Ele Respira (Leg)
-O Vingador da Iugoslávia 2 (Leg)
-Objetos Raros (Leg)
-Por Trás da Verdade (Leg)
-She Taught Love (Leg)
-Touch
-Transformers O Início (Qualidade de Cinema)
-Tudo Pelo Divórcio (Leg)
-Tuesday: O Último Abraço
-Um Verdadeiro Cavalheiro (Leg)
-Will e Harper (Leg)
+A Boa Metade (2024)
+A Sereia Amor Para Sempre (2024) (Leg)
+A Solta Amor em Fuga (2024)
+A Vítima Invisível: O Caso Eliza Samudio (2024)
+Apartamento 7A (2024)
+Apartamento 7A (2024) (Leg)
+As Três Filhas (2024)
+Bangkok Breaking: Céu e Inferno (2024) (Leg)
+Bangkok no Limite Entre o Inferno e o Paraíso (2024)
+Best Cop Ever (2024) (Leg)
+Cães de Guerra (2024)
+Calor Mortífero (2024)
+Calor Mortífero (2024) (Leg)
+Cuckoo (2024) (Leg)
+Dario Argento Pânico (2024) (Leg)
+Demi Lovato Apresenta Estrela Mirim (2024) (Leg)
+Diabólica (2024)
+Diabólica (2024) (Leg)
+E Assim Que Acaba (2024)
+Elen DeGeneres For Your Approval (2024) (Leg)
+Fique Acordado (2024)
+Fly (2024)
+Greice (2024)
+Guerreiros do Basquete (2024)
+Hijack 1971 (2024) (Leg)
+Housekeeping for Beginners (2024)
+Lobos (2024)
+Lobos (2024) (Leg)
+Lua de Sangue (2024)
+Meu Amigo Robô (2024)
+Morrison (2024) (Leg)
+Nascida para Cantar (2024)
+Negociador de Crise (2024) (Leg)
+O Ar Que Ele Respira (2024) (Leg)
+O Vingador da Iugoslávia 2 (2024)
+O Vingador da Iugoslávia 2 (2024) (Leg)
+Objetos Raros (2024)
+Objetos Raros (2024) (Leg)
+Por Trás da Verdade (2024) (Leg)
+She Taught Love (2024) (Leg)
+Touch (2024)
+Transformers O Início (2024) (Qualidade de Cinema)
+Tudo Pelo Divórcio (2024) (Leg)
+Tuesday: O Último Abraço (2024)
+Um Verdadeiro Cavalheiro (2024) (Leg)
+Will e Harper (2024) (Leg)
