@@ -1,4 +1,4 @@
-🍿Séries Adicionadas:🍿
+# 🍿Séries Adicionadas:🍿
 
 - A Franquia
 - Amor Traiçoeiro
@@ -11,7 +11,7 @@
 - Parasyte The Maxim
 - Seis Irmãos Esquizofrênicos
 
-🍿Séries Atualizadas:🍿
+# 🍿Séries Atualizadas:🍿
 
 - 90 Dias Para Casar Reino Unido
 - Aeroporto: Área Restrita
