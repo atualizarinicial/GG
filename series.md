@@ -1,3 +1,5 @@
+### (11-10/2024)
+
 # Séries Adicionadas:
 
 - A Franquia
