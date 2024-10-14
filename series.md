@@ -1,6 +1,6 @@
 ### (✅ Atualização de Conteúdo 14-10-2024)
 
-# 🟠 Series Adicionadas:
+# Series Adicionadas:
 
 - 🎥 Great News
 - 🎥 Neemias
@@ -9,7 +9,7 @@
 - 🎥 Onde Está a Wanda?
 - 🎥 Os Misteriosos Raptos em Iowa
 
-# 🟠 Series Atualizadas:
+# Series Atualizadas:
 
 - 🎥 Chicago Fire: Heróis Contra o Fogo
 - 🎥 Chicago Med
